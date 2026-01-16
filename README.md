@@ -1,4 +1,4 @@
-## Hi, Braden 👋
+## Hi, I'm Braden 👋
 🎓 Junior Computer Science Major (Data Science Concentration)
 🏫 Prairie View A&M University
 
